@@ -1,3 +1,3 @@
-## Hi there 👋
+## Barchaga salom 👋
 
-**This is bioinformstic organisation**
+**Bu biodasturchi tashkiloti**
