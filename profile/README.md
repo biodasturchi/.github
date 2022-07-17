@@ -1,3 +1,1 @@
-## Barchaga salom 👋
-
-**Bu biodasturchi tashkiloti**
+## Biodasturchi github sahifasi
